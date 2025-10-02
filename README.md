@@ -6,6 +6,8 @@
 <img src="https://i.pinimg.com/736x/6e/bb/f6/6ebbf685428d03a9a82f1766b06a6aae.jpg" width="250" />
 </p>
 
+<p align="center"> (For PONYTOWN PURPOSE) </p>
+
 <p align="center"> Call me RV, Jirou or whatever nickname you can create to call me (very much appreciated!) </p>
 <p align="center"> I write, I draw, I cosplay, and I animate! </p>
 <p align="center"> I'm weird, not to the point that I make people uncomfortable. My humor is very random at all times, cracking jokes almost out of nowhere (mostly taken influence from jay - kubzscouts) Please DO TELL so we can settle it. </p>
